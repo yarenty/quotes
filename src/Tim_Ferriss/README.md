@@ -1,0 +1,1 @@
+It’s lonely at the top, 99% of people are convinced they are incapable of achieving great things, so they aim for mediocre.The level of competition is thus fiercest for ‘realistic’ goals, paradoxically making them the most competitive.
