@@ -13,7 +13,7 @@ List of quotes to use in different projects
 ## Expected example output
 
 - in:
-/Mijamoto_Musachi/The_Book_Of_Five,Rings.md - line 5
+/Mijamoto_Musashi/The_Book_Of_Five_Rings.md - line 5
 
 - out:
 > "If you wish to control others, you must first control yourself"
