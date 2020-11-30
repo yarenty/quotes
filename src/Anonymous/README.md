@@ -16,3 +16,4 @@ I like work. I can sit and watch it for hours.
 I understand why you're confused. You're thinking too much.
 I used to have a drinking problem. Now I love the stuff.
 You will survive living with what's essential, but you'll thrive living with what adds value.
+Today is the tomorrow that you were worried yesterday. What's your excuse now?
