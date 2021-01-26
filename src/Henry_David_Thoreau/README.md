@@ -6,3 +6,4 @@ We are happy in proportion to the things we can do without.
 There are moments when all anxiety and stated toil are becalmed in the infinite leisure and repose of nature.
 If we will be quiet and ready enough, we shall find compensation in every disappointment.
 All good things are wild, and free.
+Wealth is the ability to fully experience life.
