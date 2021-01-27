@@ -18,3 +18,4 @@ I used to have a drinking problem. Now I love the stuff.
 You will survive living with what's essential, but you'll thrive living with what adds value.
 Today is the tomorrow that you were worried yesterday. What's your excuse now?
 Do the right thing, even when no one is watching. It's called integrity.
+You can't reach for anything new if your hands are full of yesterday's junk.
