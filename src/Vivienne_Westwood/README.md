@@ -1,0 +1,1 @@
+Buy less, choose well.
