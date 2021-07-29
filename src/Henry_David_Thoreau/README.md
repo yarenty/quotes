@@ -9,3 +9,4 @@ All good things are wild, and free.
 Wealth is the ability to fully experience life.
 I make myself rich by making my wants few.
 An early morning walk is a blessing for the whole day.
+The question is not what you look at, but what you see.
