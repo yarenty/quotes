@@ -10,3 +10,4 @@ Wealth is the ability to fully experience life.
 I make myself rich by making my wants few.
 An early morning walk is a blessing for the whole day.
 The question is not what you look at, but what you see.
+Could a greater miracle take place than for us to look through each other's eyes for an instant?
