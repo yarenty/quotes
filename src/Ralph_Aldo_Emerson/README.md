@@ -7,3 +7,4 @@ The soul active sees absolute truth; and utters truth, or creates.
 Adopt the pace of nature: her secret is patience.
 In the presence of nature, a wild delight runs through the man, in spite of real sorrows.
 If the stars should appear but one night every thousand years how man would marvel and adore.
+When it is dark enough, you can see the stars.
