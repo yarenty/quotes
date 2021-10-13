@@ -1,1 +1,1 @@
-Little thing are big.
+Little things are big.
