@@ -10,3 +10,4 @@ If the stars should appear but one night every thousand years how man would marv
 When it is dark enough, you can see the stars.
 A great man is always willing to be little.
 Cultivate the habit of being grateful for every good thing that comes to you, and to give thanks continuously.
+Live in the sunshine, swim the sea, drink the wild air.
