@@ -12,3 +12,4 @@ A great man is always willing to be little.
 Cultivate the habit of being grateful for every good thing that comes to you, and to give thanks continuously.
 Live in the sunshine, swim the sea, drink the wild air.
 Nature always wears the colors of the spirit.
+The years teach much which the days never know.
