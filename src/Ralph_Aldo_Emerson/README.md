@@ -13,3 +13,4 @@ Cultivate the habit of being grateful for every good thing that comes to you, an
 Live in the sunshine, swim the sea, drink the wild air.
 Nature always wears the colors of the spirit.
 The years teach much which the days never know.
+An ounce of action is worth a ton of theory.
