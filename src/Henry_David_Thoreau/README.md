@@ -13,3 +13,4 @@ The question is not what you look at, but what you see.
 Could a greater miracle take place than for us to look through each other's eyes for an instant?
 Life isn't about finding yourself; it's about creating yourself. So live the life you imagined.
 Live in each season as it passes; breathe the air, drink the drink, taste the fruit, and resign yourself to the influence of the earth.
+The greatest compliment that was ever paid me was when one asked me what I thought, and attended to my answer.
