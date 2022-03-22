@@ -14,3 +14,4 @@ Live in the sunshine, swim the sea, drink the wild air.
 Nature always wears the colors of the spirit.
 The years teach much which the days never know.
 An ounce of action is worth a ton of theory.
+Even in the mud and scum of things, something always, always sings.
