@@ -5,3 +5,4 @@ I am not young enough to know everything.
 Fashion is a form of ugliness so intolerable that we have to alter it every six months.
 Some cause happiness wherever they go; others whenever they go.
 Life is far too important a thing ever to talk seriously about.
+Who, being loved, is poor?
