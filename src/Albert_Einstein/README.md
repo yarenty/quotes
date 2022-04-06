@@ -4,3 +4,4 @@ A clever person solves a problem. A wise person avoids it.
 I speak to everyone in the same way, whether he is the garbage man or the president of the university.
 Time flies when you are having fun.
 A question that sometimes drives me hazy — am I or are the others crazy?
+Three rules of work: Out of clutter find simplicity; From discord find harmony; In the middle of difficulty lies opportunity.
