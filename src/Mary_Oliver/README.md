@@ -3,3 +3,4 @@ Finally I saw that worrying had come to nothing. And gave it up. And took my old
 For me the door to the woods is the door to the temple.
 I want to be light and frolicsome
 Keep some room in your heart for the unimaginable.
+Watch, now, how I start the day - in happiness, in kindness.
