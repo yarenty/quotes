@@ -15,3 +15,4 @@ Nature always wears the colors of the spirit.
 The years teach much which the days never know.
 An ounce of action is worth a ton of theory.
 Even in the mud and scum of things, something always, always sings.
+Our greatest glory is not in never failing, but in rising up every time we fail.
