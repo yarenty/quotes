@@ -1,0 +1,1 @@
+With the computer and stuff, the difference between a rich guy and a poor guy, to me, is nothing. Because I don't like big houses, I don't drive a car, so you know, I just live in a small apartment and I have my computer, which is really cool.
