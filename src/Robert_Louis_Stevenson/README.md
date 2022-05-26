@@ -1,2 +1,3 @@
 It is not so much for its beauty that the forest makes a claim upon men's hearts, as for that subtle something, that quality of air that emanation from old trees, that so wonderfully changes and renews a weary spirit.
 Life is not a matter of holding good cards, but of playing a poor hand well.
+The best things in life are nearest: Breath in your nostrils, light in your eyes, flowers at your feet, duties at your hand, the path of right just before you. Then do not grasp at the stars, but do life's plain, common work as it comes, certain that daily duties and daily bread are the sweetest things in life.
