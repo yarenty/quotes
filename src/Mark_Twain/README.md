@@ -7,3 +7,4 @@ I didn't have time to write a short letter, so I wrote a long one instead.
 I have never really let my schooling interfere with my education.
 Humor is mankind's greatest blessing.
 Continuous improvement is better than delayed perfection.
+The best way to cheer yourself up is to try to cheer somebody else up.
