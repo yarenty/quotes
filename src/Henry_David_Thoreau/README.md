@@ -17,3 +17,4 @@ The greatest compliment that was ever paid me was when one asked me what I thoug
 Say what you have to say, not what you ought. Any truth is better than make believe.
 My greatest skill in life has been to want but little.
 I make myself rich by making my wants few
+Success usually comes to those who are too busy to be looking for it.
