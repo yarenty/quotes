@@ -16,3 +16,4 @@ The years teach much which the days never know.
 An ounce of action is worth a ton of theory.
 Even in the mud and scum of things, something always, always sings.
 Our greatest glory is not in never failing, but in rising up every time we fail.
+Don't be pushed by your problems. Be led by your dreams.
