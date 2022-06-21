@@ -7,3 +7,4 @@ Some cause happiness wherever they go; others whenever they go.
 Life is far too important a thing ever to talk seriously about.
 Who, being loved, is poor?
 It is a curious fact that people are never so trivial as when they take themselves seriously.
+Ah, on what little things does happiness depend!
