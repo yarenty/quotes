@@ -18,3 +18,4 @@ Even in the mud and scum of things, something always, always sings.
 Our greatest glory is not in never failing, but in rising up every time we fail.
 Don't be pushed by your problems. Be led by your dreams.
 In my walks, every man I meet is my superior in some way, and in that I learn from him.
+Life is a journey, not a destination.
