@@ -20,3 +20,4 @@ I make myself rich by making my wants few
 Success usually comes to those who are too busy to be looking for it.
 I can alter my life by altering my attitude.
 Live in each season as it passes; breathe the air, drink the drink, taste the fruit, and resign yourself to the influence of the earth.
+Our life is frittered away by detail. Simplify, simplify.
