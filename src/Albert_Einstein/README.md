@@ -6,4 +6,5 @@ Time flies when you are having fun.
 A question that sometimes drives me hazy — am I or are the others crazy?
 Three rules of work: Out of clutter find simplicity; From discord find harmony; In the middle of difficulty lies opportunity.
 Out of clutter, find simplicity.
-Freedom, in any case, is only possible by constantly struggling for it.
+Freedom, in any case, is only possible by constantly struggling for it
+Look deep into nature, and then you will understand everything better.
