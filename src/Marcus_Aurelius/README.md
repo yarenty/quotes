@@ -3,3 +3,4 @@ The impediment to action advances action. That which stands in the way becomes t
 Dwell on the beauty of life.
 We live only now. Everything else is either passed or is unknown.
 The happiness of your life depends upon the quality of your thoughts.
+Dwell on the beauty of life. Watch the stars, and see yourself running with them.
