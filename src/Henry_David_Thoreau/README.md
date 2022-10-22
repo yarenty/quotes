@@ -22,3 +22,4 @@ I can alter my life by altering my attitude.
 Live in each season as it passes; breathe the air, drink the drink, taste the fruit, and resign yourself to the influence of the earth.
 Our life is frittered away by detail. Simplify, simplify.
 Dreams are the touchstones of our characters.
+The greatest compliment that was ever paid me was when one asked me what I thought, and attended to my answer.
