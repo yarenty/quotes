@@ -23,3 +23,4 @@ Live in each season as it passes; breathe the air, drink the drink, taste the fr
 Our life is frittered away by detail. Simplify, simplify.
 Dreams are the touchstones of our characters.
 The greatest compliment that was ever paid me was when one asked me what I thought, and attended to my answer.
+Go confidently in the direction of your dreams! Live the life you've imagined.
