@@ -8,3 +8,4 @@ Three rules of work: Out of clutter find simplicity; From discord find harmony; 
 Out of clutter, find simplicity.
 Freedom, in any case, is only possible by constantly struggling for it
 Look deep into nature, and then you will understand everything better.
+Everything that is really great and inspiring is created by the individual who can labor in freedom.
