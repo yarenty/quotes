@@ -1,0 +1,1 @@
+Life is worth living as long as there's a laugh in it.
