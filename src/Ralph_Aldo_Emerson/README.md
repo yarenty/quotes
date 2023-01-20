@@ -24,3 +24,4 @@ Live in the sunshine, swim the sea, drink the wild air.
 Our greatest glory is not in never failing, but in rising up every time we fail.
 Be silly. Be honest. Be kind.
 A house is made with walls and beams; a home is built with love and dreams.
+If you cannot be free be as free as you can.
