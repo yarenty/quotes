@@ -1,0 +1,1 @@
+Sunsets are proof that endings can often be beautiful, too.
