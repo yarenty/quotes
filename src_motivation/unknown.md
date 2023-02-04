@@ -34,4 +34,9 @@ Do the one thing, It is those who concentrate on but one thing at a time who adv
 Set deadlines - force to get things done.
 Done is better than perfect. 80% - deliver, then iterate + improvement.
 Exercise: Take a walko without thinking.
-Get to work.
+Get to work. 
+Stop beliving in "busy", rethink "hard work".
+Make yourself the priority.
+Get creative with time management.
+Stop mindlessly chasing business.
+God does'nt like unfinished business.
