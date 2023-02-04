@@ -4,7 +4,6 @@ Run for your life from any man who tells you that money is evil. That sentence i
 I have about concluded that wealth is a state of mind and that anyone can acquire a wealthy state of mind by thinking rich thoughts - Andrew Young
 A man only learns in two ways: one by reading, and the other by association with smarter people - Will Rogers
 Both fortune and love befriend bold - Ovid
-Old men are always advising young men to save money. That's bad advaice. Don't save every nickel. Invest in yourself. - Henry Ford
 Man was born to be rich, or inevitably to grow rich, through the use of his faulties. - Ralph Waldo Emerson
 The only source of knowledge is experience - A. Einstein
 Simplify your words.
@@ -23,7 +22,6 @@ It's not about ideas, it's about making ideas happen - Scott Betsky
 Ideas are easy, implementation is hard - Guy Kavasaki
 If you work on stuff that you like and you're passionate about you don't have to have a master plan with how things will play out - Mark Zuckerberg
 The best time to plant a tree was 20 years ago. The second best time is now - chinese.
-When everything seems to be going against you, remember that the airplane takes off against the wind not with it - Henry Ford
 If you're not a risk taker, you should get the hell out of business - Ray Kroc
 Always deliver more than expected - Larry Page
 Motivation -> ability -> opportunity.
@@ -31,4 +29,4 @@ I'm convinced that about half of what separates the succesfull entrepreneurs fro
 It does not matter how slowly you go as long as you do not stop - Confucius
 Do the best, God will do the rest!
 Most of people give up on some stage! - Be obsessed!
-If today were last day of my life,, would I want to do what I am about to do today!
+If today were last day of my life,, would I want to do what I am about to do today?
