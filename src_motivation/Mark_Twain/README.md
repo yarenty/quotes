@@ -1,1 +1,2 @@
 The secret of getting aead is to getting started.
+Twenty years from now, you will be more dissapointed by the things that you didn't do than by the ones you did do, so throw off the bowlines, sail away from safe harbor, catch the trade winds in your sails. Expore, Dream, Discover.
