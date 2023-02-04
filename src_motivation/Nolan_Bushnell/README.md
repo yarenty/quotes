@@ -1,0 +1,1 @@
+The critical ingredient is getting off your butt and doing something. It' as simple as that. A lot of people have ideas, but there are few who decide to do something about them now. NOt tomorrow. Not next week. But today. The true etrepreneur is a doer, not adreamer.
