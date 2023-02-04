@@ -38,3 +38,4 @@ The superior man is modest in his speach, but exceeds in his actions.
 Roads were made for journeys - not destinations.
 Think of tomorrow, the past can't be mended.
 Worry not that no one knows you, seek to be worth knowing.
+Wherever you go, go with all your heart.
