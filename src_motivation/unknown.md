@@ -19,3 +19,13 @@ Don't make assumptions
 Judge man by his questions rather than his answers - Woiltaire
 Become master
 Every master was once a disaster - T. Harv Eker
+It's not about ideas, it's about making ideas happen - Scott Betsky
+Ideas are easy, implementation is hard - Guy Kavasaki
+If you work on stuff that you like and you're passionate about you don't have to have a master plan with how things will play out - Mark Zuckerberg
+The best time to plant a tree was 20 years ago. The second best time is now - chinese.
+When everything seems to be going against you, remember that the airplane takes off against the wind not with it - Henry Ford
+If you're not a risk taker, you should get the hell out of business - Ray Kroc
+Always deliver more than expected - Larry Page
+Motivation -> ability -> opportunity.
+I'm convinced that about half of what separates the succesfull entrepreneurs from the non-successful ones is pure perserverance - Steve Jobs
+It does not matter how slowly you go as long as you do not stop - Confucius
