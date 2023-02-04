@@ -33,3 +33,5 @@ If today were last day of my life,, would I want to do what I am about to do tod
 Do the one thing, It is those who concentrate on but one thing at a time who advance in this world.
 Set deadlines - force to get things done.
 Done is better than perfect. 80% - deliver, then iterate + improvement.
+Exercise: Take a walko without thinking.
+Get to work.
