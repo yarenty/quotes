@@ -30,3 +30,6 @@ It does not matter how slowly you go as long as you do not stop - Confucius
 Do the best, God will do the rest!
 Most of people give up on some stage! - Be obsessed!
 If today were last day of my life,, would I want to do what I am about to do today?
+Do the one thing, It is those who concentrate on but one thing at a time who advance in this world.
+Set deadlines - force to get things done.
+Done is better than perfect. 80% - deliver, then iterate + improvement.
