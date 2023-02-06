@@ -40,3 +40,24 @@ Make yourself the priority.
 Get creative with time management.
 Stop mindlessly chasing business.
 God does'nt like unfinished business.
+The most common way people give up their power is by thinking they don't have any.
+Buy your own dreams or someone else will hire you to build theirs.
+If you look at what youhave in life, you'll always have more. If you look at what you don't have in life, you'll never have enough.
+Whatever you find yourself on the side of the majority, it is time to pause and reflect.
+The most difficult thing is the decision to act, the rest is merely tenacity. — Amelia Earhart.
+Are you ready to take on the guy in your mirror?
+Winning at money is 80% behavioiur + 20% head knowledge.
+What to do is not the problem, doing is.
+Delay gratification - be mature.
+One bite at a time! Patience
+Blueprints: aiming at the goal.
+Blueprint: begin with the end in mind
+Focus - cut all debts
+What rich people do - no overspending.
+Do not be impatient with your seemingly slow process.
+Do not run faste than you can.
+Money gives power to good intentions.
+Best way to help poor is to get rich
+It's not complicated - it may be difficult
+The good thing about principles is that they make life easy. When someone bases his life on principle, 99 percent of his decisions are already made.
+Law of Serendipity: "Lady luck favour the one who tries".
