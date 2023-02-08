@@ -61,3 +61,4 @@ Best way to help poor is to get rich
 It's not complicated - it may be difficult
 The good thing about principles is that they make life easy. When someone bases his life on principle, 99 percent of his decisions are already made.
 Law of Serendipity: "Lady luck favour the one who tries".
+Eat frog in the morning.
