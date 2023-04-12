@@ -1,0 +1,1 @@
+It is not the straining for great things that is most effective; it is the doing the little things, the common duties, a little better and better.
