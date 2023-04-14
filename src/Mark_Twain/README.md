@@ -8,3 +8,4 @@ I have never really let my schooling interfere with my education.
 Humor is mankind's greatest blessing.
 Continuous improvement is better than delayed perfection.
 The best way to cheer yourself up is to try to cheer somebody else up.
+Buy land, they're not making it anymore.
