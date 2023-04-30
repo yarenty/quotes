@@ -1,0 +1,1 @@
+Art is not a mirror to hold up to society, but a hammer with which to shape it.
