@@ -1,0 +1,1 @@
+People who are bred, selected, and compensated to find complicated solutions do not have an incentive to implement simplified ones.
