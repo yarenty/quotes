@@ -1,0 +1,1 @@
+When you go through something, you learn to appreciate little things - the birds, trees, flowers.
