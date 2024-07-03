@@ -1,0 +1,1 @@
+Plans are worthless. Planning is everything.
