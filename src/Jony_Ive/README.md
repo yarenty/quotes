@@ -1,0 +1,1 @@
+True simplicity is derived from so much more than just the absence of clutter and ornamentation. It's about bringing order to complexity.
